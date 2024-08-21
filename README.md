@@ -1,0 +1,3 @@
+- 👋 Hola soy @xderrisk
+- 🌱 Estoy aprendiendo a programar
+- 📫 Contactame sergiowgp@outlook.com
